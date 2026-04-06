@@ -1,0 +1,2 @@
+# latihanulanganke1
+latihanbiasa
